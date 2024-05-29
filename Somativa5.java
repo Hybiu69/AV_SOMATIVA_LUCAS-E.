@@ -27,4 +27,3 @@ public class Somativa5 { //nome do código
 	}
 
 }
-Ss

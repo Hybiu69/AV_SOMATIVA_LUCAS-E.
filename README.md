@@ -1,2 +1,2 @@
-![image](https://github.com/Hybiu69/Somativa/assets/90871939/f29fd6b9-4416-4ac9-969b-fa072ebb204c)
+![image](https://github.com/Hybiu69/AV_SOMATIVA_LUCAS-E./assets/90871939/13d9092b-d828-4bab-86ff-31062bb203da)
 
